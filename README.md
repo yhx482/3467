@@ -35,4 +35,4 @@
 
 本站致力于构建一个简洁、安全、内容丰富的日本AV免费资源站，长期稳定运营，欢迎收藏本站并常回来获取每日最新无码资源与精选番号合集！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/3467 ）</span>
